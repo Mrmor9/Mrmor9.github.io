@@ -1,1 +1,1 @@
-I suppose this is gonna be where any projects i work on go to. Not sure what going to go on here but im excited that somthing will com of this.
+I suppose this is gonna be where any projects I work on go to. Not sure what'sw going to go on here but i'm excited that somthing will come of this.
